@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PiyushBaria
-- 👀 I’m interested in Anime
+- 👀 I’m interested in 
 - 🌱 I’m currently learning Medical Coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
